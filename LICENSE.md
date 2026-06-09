@@ -1,4 +1,4 @@
-#  
+#  professional Script for run for brainrots is the best run for brainrots Script, featuring god mode and auto-collect. Safe and powerful for all your
 
 
 
